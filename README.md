@@ -1,6 +1,6 @@
 ### Hi there 👋, Fumoᗜ_ᗜ
 #### ᗜˬᗜ
-(My programming skill sucks lol.)
+(My programming skill sucks lol, anyway I gonna show the fumos.)
 
 ![ᗜˬᗜ](https://github.com/kevin20888802/kevin20888802/blob/main/assets/20230411_0.png)
 
