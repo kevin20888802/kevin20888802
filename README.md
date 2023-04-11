@@ -1,6 +1,6 @@
 ### Hi there 👋, Fumoᗜ_ᗜ
 #### ᗜˬᗜ
-![ᗜˬᗜ](https://github.com/kevin20888802/markDown123/blob/main/assets/20230124_065136.jpg)
+![ᗜˬᗜ](https://github.com/kevin20888802/kevin20888802/blob/main/assets/20230411_0.png)
 
 Fumos are a line of high-quality plush character figures manufactured and sold by the Japanese company Gift. Fumos exist for multiple franchises, but most notably the Touhou Project. Touhou Fumos are designed by ANGELTYPE. 
 
