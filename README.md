@@ -13,7 +13,6 @@ Skills: Blender 3D / Movie Editing
 - 🌱 I’m currently learning ᗜˬᗜ 
 - 👯 I’m looking to collaborate on ᗜ˰ᗜ 
 - 🤔 I’m looking for help with Fumo Buying 
-- 📫 How to reach me: https://twitter.com/starshin_088 
 
 
 
