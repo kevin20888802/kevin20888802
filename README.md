@@ -5,7 +5,7 @@
 |       |        |
 | -------------- | -------------- |
 | ![ᗜˬᗜ](https://github.com/kevin20888802/kevin20888802/blob/main/assets/csFumo.GIF) | ![ᗜˬᗜ](https://github.com/kevin20888802/kevin20888802/blob/main/assets/funkyDanceBattle.GIF) |
-| ![ᗜˬᗜ](https://github.com/kevin20888802/kevin20888802/blob/main/assets/gooboo123.GIF) | ![ᗜˬᗜ](https://github.com/kevin20888802/kevin20888802/blob/main/assets/funkyDanceBattle.GIF) |
+| ![ᗜˬᗜ](https://github.com/kevin20888802/kevin20888802/blob/main/assets/gooboo123.GIF) | ![ᗜˬᗜ](https://github.com/kevin20888802/kevin20888802/blob/main/assets/fumodman.GIF) |
 
 Skills: Blender 3D / Movie Editing
 
